@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yukisa45
+- 👋 Hi, I’m rakean
 - 👀 I’m interested in games,and how they work
 - 🌱 I’m currently learning teknik informatika
 - 💞️ I’m looking to collaborate on -
